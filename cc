@@ -1,1 +1,1 @@
-https://worldwidesite.store/rt2/
+https://nighthosting.store/jt/
